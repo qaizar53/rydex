@@ -209,6 +209,6 @@ This project is licensed under the MIT License.
 
 **Qaizar Badri**
 
-GitHub: https://github.com/your-username
+GitHub: (https://github.com/qaizar53)
 
-LinkedIn: https://linkedin.com/in/your-profile
+LinkedIn: https://www.linkedin.com/in/qaizar-badari-ba417041b?utm_source=share_via&utm_content=profile&utm_medium=member_android
